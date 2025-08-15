@@ -27,12 +27,12 @@
 🎁 正规渠道采购，安全可靠，极速发货，助您轻松畅享美区精彩内容！
 
 
-Apple美区/港区/土耳其礼品卡购买：[https://juzixp.com/](https://juzixp.com/)
+Apple美区/港区/土耳其礼品卡购买：[https://shop.muooy.com/](https://shop.muooy.com/)
 
-共享苹果美区ID：[https://juzixp.com/buy/21](https://juzixp.com/buy/21)
+共享苹果美区ID：[https://shop.muooy.com/buy/21](https://shop.muooy.com/buy/21)
 
-已购小火箭Shadowrocket美区成品号：[https://juzixp.com/buy/15](https://juzixp.com/buy/15)
+已购小火箭Shadowrocket美区成品号：[https://shop.muooy.com/buy/15](https://shop.muooy.com/buy/15)
 
-苹果美区独享账号：[https://juzixp.com/buy/3](https://juzixp.com/buy/3)
+苹果美区独享账号：[https://shop.muooy.com/buy/3](https://shop.muooy.com/buy/3)
 
 
